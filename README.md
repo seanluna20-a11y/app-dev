@@ -23,3 +23,5 @@ Tokyo Revengers is my favorite anime series because it combines action, drama, f
 ## Summary
 
 Tokyo Revengers tells the story of Takemichi Hanagaki, who discovers that he can travel back in time. He joins the Tokyo Manji Gang and works to change tragic events in the future. The series focuses on courage, friendship, sacrifice, and personal growth.
+
+https://www.cinematerial.com/tv/tokyo-revengers-i13196080/p/iehefepd
